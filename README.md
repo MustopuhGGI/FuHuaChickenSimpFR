@@ -8,8 +8,8 @@ also this is my second account🤗 original is: ([@Angoks](https://github.com/An
 
 ![Sinon](https://i.ibb.co/9qXmQ39/Desktop-Screenshot-2022-10-06-14-06-08-04.png)
 ![Sinon](https://i.ibb.co/ZJ0w532/Desktop-Screenshot-2022-10-06-14-06-25-59.png)
-[![Horizuki's github activity graph](https://activity-graph.herokuapp.com/graph?username=Angoks&color=fce9ed&point=ffffff&theme=material-palenight)]
 ![Sinon](https://i.ibb.co/nL0zGSX/Desktop-Screenshot-2022-10-06-14-06-39-20.png)
+![Horizuki's github activity graph](https://activity-graph.herokuapp.com/graph?username=Angoks&color=fce9ed&point=ffffff&theme=material-palenight)
 
 My [YouTube](https://wwwyoutube.com/channel/UC19KZfU5hO0siK6y_zfJJSA)
 
