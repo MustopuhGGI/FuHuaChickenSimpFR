@@ -21,7 +21,7 @@ My [YouTube](https://wwwyoutube.com/channel/UC19KZfU5hO0siK6y_zfJJSA)
 
 ## Active Public Projects
 - [GIMI ASSETS](https://github.com/SilentNightSound/GI-Model-Importer-Assets)
-[![Horizuki](https://github-readme-streak-stats.herokuapp.com?user=Angoks&theme=tokyonight)](https://git.io/streak-stats)
+[![Horizuki](https://github-readme-streak-stats.herokuapp.com?user=Angoks&theme=tokyonight)
 
 ## Languages
 
