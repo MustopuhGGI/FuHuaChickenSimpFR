@@ -1,10 +1,10 @@
 Hello everyone, I am M Anggiar Mustofa (Impact Teyvat or TheNgoks61) \
 my birthday is: 10/14/2005 \
-i was hypersexual🔞💦 \
+i'm HyperSexual🔞💦 \
 I am a Content Creator on YouTube 💻
 I’m currently still a High School student now
 If you want to contact me, just dm me on Discord (@Hale#5105 or itsanggii#0359) or Instagram ([@ImpactTeyvat](https://www.instagram.com/ImpactTeyvat/))
-also this is my second account :)
+also this is my second account🤗 original is: ([@Angoks](https://github.com/Angoks)) \
 
 ![Sinon](https://i.ibb.co/9qXmQ39/Desktop-Screenshot-2022-10-06-14-06-08-04.png)
 ![Sinon](https://i.ibb.co/ZJ0w532/Desktop-Screenshot-2022-10-06-14-06-25-59.png)
