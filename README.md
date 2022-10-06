@@ -3,7 +3,7 @@ I am a Content Creator on YouTube 💻
 I’m currently still a High School student now
 If you want to contact me, just dm me on Discord (@Hale#5105 or itsanggii#0359) or Instagram ([@ImpactTeyvat](https://www.instagram.com/ImpactTeyvat/))
 
-[![Sinon](https://i.ibb.co/9qXmQ39/Desktop-Screenshot-2022-10-06-14-06-08-04.png)
+(https://i.ibb.co/9qXmQ39/Desktop-Screenshot-2022-10-06-14-06-08-04.png)
 
 My [YouTube](https://wwwyoutube.com/channel/UC19KZfU5hO0siK6y_zfJJSA)
 
