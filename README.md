@@ -7,9 +7,9 @@ I’m currently still a High School student now
 If you want to contact me, just dm me on Discord (@Hale#5105 or itsanggii#0359) or Instagram ([@ImpactTeyvat](https://www.instagram.com/ImpactTeyvat/)) \
 also this is my second account🤗 original is: ([@Angoks](https://github.com/Angoks))
 
-![Sinon](https://i.ibb.co/FKTnmBL/105993683-p1.png)
-![Sinon](https://i.ibb.co/vx8K5YJ/105993683-p2.png)
-![Sinon](https://i.ibb.co/BgdkDvs/105993683-p3.png)
+![Ely](https://i.ibb.co/FKTnmBL/105993683-p1.png)
+![Sia](https://i.ibb.co/C5BSVMT/105993683-p2.png)
+![PinkElf](https://i.ibb.co/HtnJmFL/105993683-p3.png)
 ![Horizuki's github activity graph](https://activity-graph.herokuapp.com/graph?username=Angoks&color=fce9ed&point=ffffff&theme=material-palenight)
 
 My [YouTube](https://wwwyoutube.com/channel/UC19KZfU5hO0siK6y_zfJJSA)
@@ -17,7 +17,7 @@ My [YouTube](https://wwwyoutube.com/channel/UC19KZfU5hO0siK6y_zfJJSA)
 <a href="https://discord.com/users/1011680728964141067"><img src="https://lanyard.cnrad.dev/api/695511843707551776?borderRadius=20px&bg=00000000" alt="Discord" /></a>
 <a href="https://discord.com/users/1011646653704441876"><img src="https://lanyard.cnrad.dev/api/1011646653704441876?borderRadius=20px&bg=00000000" alt="Discord" /></a>
 
-![Sinon](https://i.ibb.co/Vqj65GJ/105993683-p4.png)
+![MissSex](https://i.ibb.co/Vqj65GJ/105993683-p4.png)
 
 ## Member of
 - [YouTube Content Creator](https://www.youtube.com/)
